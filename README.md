@@ -1,6 +1,6 @@
 # hello-world
 New Ideas
 
-hi humans 
+Bro
 
 Just had a nice steak with sweet potatoes for dinner.
